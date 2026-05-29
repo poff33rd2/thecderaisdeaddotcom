@@ -1,0 +1,1 @@
+Empowering hand to hand combat and getting it out the trunk. Artist feel the need to create avenues for their solo-preneur journey. Artist's can now utilize content streaming, IoT and media storage technologies to sell amd stream their media independently without changing the way people listen or access media. 
